@@ -1,1 +1,1 @@
-- Old ALC account, go to @SleepingBody for up to date projects.
+- Professional Account, go to @SleepingBody for freelance projects.
